@@ -4,6 +4,8 @@
 - 🔭 Em Busca da Oportunidade                      
 - 🌱 Estudando ADS
 - 😄 Pronouns: Ele/Dele
+- Entre em Contado Comigo 📱(11)95436-1547
+- email ✉ sub.gabri@gmail.com
 
 <img src="https://user-images.githubusercontent.com/74038190/212284158-e840e285-664b-44d7-b79b-e264b5e54825.gif">
 
