@@ -2,7 +2,7 @@
 
 
 - 🔭 Em Busca da Oportunidade                      
-- 🌱 Estudando ADS
+- 🌱 Formado em ADS
 - 😄 Pronouns: Ele/Dele
 - Entre em Contato Comigo 📱(11)95436-1547
 - email ✉ sub.gabri@gmail.com
